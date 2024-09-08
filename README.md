@@ -6,6 +6,8 @@
 
 - Apoio Criativo: Contribuo para o desenvolvimento de projetos, oferecendo minha visão e ajudando a implementar ideias.
 - Conteúdos Diversos: Ajudo a criar e organizar conteúdo para nossos canais e projetos, garantindo que tudo esteja bem apresentado e acessível.
+- Edição de Vídeos: Sou uma editora experiente no Alight Motion, onde aplico minhas habilidades para criar conteúdos visuais de alta qualidade.
+
 - Este perfil é um espaço para compartilhar os projetos e conteúdos que desenvolvemos juntos. Estou sempre animada para aprender mais e explorar novas oportunidades na tecnologia e na criação de conteúdo.
 
 ### Você pode entrar em contato comigo 📫
